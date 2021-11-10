@@ -1,2 +1,1 @@
-# dastur.uz_1000_ta_masala_05
-dastur.uz_1000_ta_masala_05
+dastur.uz [05 Tanlash operatoriga oid masalalar]
